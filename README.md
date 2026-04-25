@@ -63,7 +63,7 @@ The main takeaway here is that you shouldn't try to navigate this massive financ
 Take things slow. Protect your capital like your life depends on it, and don't rush the learning process. If you’re feeling inspired to take the next step, why not go ahead and download a free demo account today? Mess around with the charts, press some buttons with fake money, and see how it feels. It’s a completely pressure-free way to start your journey!
 <h2>Related HashTags</h2>
 #ForexInvestmentGrowth #ForexTrading #InvestmentStrategy #FinancialGrowth #CurrencyTrading #ForexSignals #WealthManagement #TradingTips #FXTrading #FinancialFreedom #ForexMarket #ForexAnalysis #PassiveIncome #InvestmentPortfolio #ProfessionalTrading
-<h1><strong>Contact Us</strong></h1>
+<h1><strong>Contact Us for Fund Management</strong></h1>
 <ul>
  	<li>
 <h3><strong>Telegram <span style="color: #ff0000;"><a style="color: #ff0000;" href="https://t.me/Forex_Fund_Manage" target="_blank" rel="noopener">@Forex_Fund_Manage</a></span></strong></h3>
